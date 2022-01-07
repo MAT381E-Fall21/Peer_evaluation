@@ -1,3 +1,3 @@
 ##### Note:
 
-Submit peer_evalutation and statement of personal contribution forms in **.pdf** format just before the **oral presentation date**. 
+Submit your peer_evaluation and statement of personal contribution forms in **.pdf** format just before your **oral presentation date**. 
